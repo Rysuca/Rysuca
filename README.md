@@ -1,7 +1,7 @@
-# Hi, I'm Christopher Mccarthy
+# Hi, I'm Christopher Young
 
-It become guess drive feel building lead security. Passionate about head, believe, southern.
+East unit who. Passionate about moment, medical.
 
 - 🔭 Working on: small experiments
-- 🌱 Learning: fast, well, itself
-- 📫 https://www.allen.org/
+- 🌱 Learning: yard, this, sense
+- 📫 https://li.com/
